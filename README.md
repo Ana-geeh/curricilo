@@ -1,6 +1,6 @@
                       Ana Geovana Da Silva De Oliveira
-(44) 99837-4172 
-silva.oliveira.ana2804@escola.pr.gov.br
+                             (44) 99837-4172 
+                   silva.oliveira.ana2804@escola.pr.gov.br
 
 
 OBJETIVO
